@@ -1,1 +1,1 @@
-# cuny2x
+https://github.com/Jessegoodspeed/Jessegoodspeed.github.io
